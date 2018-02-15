@@ -1,3 +1,4 @@
 # MLBB-Layla-skins
 MLBB Layla Skins Special Canon Rosess
-![Default](https://user-images.githubusercontent.com/29944979/36208512-cd6609ce-11cb-11e8-9354-de64c20b8d0c.png)
+
+![Default](https://orig00.deviantart.net/a857/f/2017/244/1/7/mobile_legends___layla__cannon_and_roses__by_dap5id-dbm0up6.png)
